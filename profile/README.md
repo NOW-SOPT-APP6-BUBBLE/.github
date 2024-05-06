@@ -1,2 +1,2 @@
 ## NOW SOPT APP2 BUBBLE
-![bubble](https://github.com/NOW-SOPT-APP6-BUBBLE/.github/assets/128459613/01b711e2-8551-4d19-b3f9-beaceccb373a)
+![image](https://github.com/NOW-SOPT-APP6-BUBBLE/.github/assets/128459613/b29b87a5-2de0-436f-b00f-bb9363abe4a0)
